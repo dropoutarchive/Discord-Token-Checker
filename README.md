@@ -37,10 +37,6 @@
 
 ---------------------------------------
 
-* Preview: https://streamable.com/je2g9k
-
----------------------------------------
-
 ### Contact
 View my contact information on my [telegram](https://t.me/dropoutuwu/)
 Thanks to [MohanadHosny](https://github.com/MohanadHosny) for helping out big time <3
